@@ -1,1 +1,6 @@
-# First Chapter
+# 젬 목록
+
+
+
+
+
